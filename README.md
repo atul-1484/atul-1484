@@ -1,4 +1,4 @@
-### Hi there 👋 Atil Sharma
+### Hi there 👋 Atul Sharma
 ---
 
 #### About Me:
